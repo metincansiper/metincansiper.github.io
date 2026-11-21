@@ -1,3 +1,7 @@
+---
+title: Thawfling – Privacy Policy · Gizlilik Politikası
+---
+
 [English](#en) · [Türkçe](#tr)
 
 ## Thawfling – Privacy Policy {#en}
